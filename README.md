@@ -1,0 +1,2 @@
+# latihan
+perdana nih
